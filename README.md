@@ -2,7 +2,7 @@
 
 최신 뉴스
 
-1.Bing이 정말로 신이 됐습니다; ChatGPT은 애들 장난이고요, 구글은 정말 큰일났습니다 / 오목교 전자상가 EP.128 (2023년 3월3일)
+1. Bing이 정말로 신이 됐습니다; ChatGPT은 애들 장난이고요, 구글은 정말 큰일났습니다 / 오목교 전자상가 EP.128 (2023년 3월3일)
 
 https://www.youtube.com/watch?v=ecsexOTHaVA&t=403s
 
